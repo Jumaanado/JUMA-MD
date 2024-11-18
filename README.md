@@ -20,16 +20,26 @@
 <a><img src='https://files.catbox.moe/n3t3ri.gif'/></a><a><img src='https://files.catbox.moe/n3t3ri.gif'/></a>
 
 
-#### SETUP 
+sᴛᴀʀ 🌟 ᴍʏ ʀᴇᴘᴏ ɪғ ʏᴏᴜ ʟɪᴋᴇ ᴛʜɪs ʙᴏᴛ ®️
+
+[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
+
+## 𝟚.𝕊𝔼ℂ𝕆ℕ𝔻 𝕊𝕋𝔼ℙ 
 
 
-[`FORK`](https://github.com/Jumaanado/JUMA-MD/fork)
+ 𝔾𝔼𝕋 𝕊𝔼𝕊𝕊𝕀𝕆ℕ 𝕀𝔻 𝔹𝕐
+ 
+
+<a href="https://hans-md-session-id-6du8.onrender.com"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/ℚℝ ℂ𝕆𝔻𝔼-h?color=black&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
 
 
  
-[`QR SCANNER`](https://andbad-qr-k71b.onrender.com/qr)
+<a href="https://hans-md-session-id-6du8.onrender.com"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/𝕊𝕀𝕋𝔼 𝔽𝕆ℝ ℙ𝔸𝕀ℝ-h?color=black&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
+[`app2`](https://lucky-md-qycm.onrender.com) 
 
-[`PAIRING CODE`](https://andbad-qr-k71b.onrender.com)
+[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
+[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
+[![-----------------------------------------------------](https://raw.githubusercontent.com/andreasbm/readme/master/assets/lines/colored.png)](#table-of-contents)
  
 
 <a><img src='https://files.catbox.moe/n3t3ri.gif'/></a><a><img src='https://files.catbox.moe/n3t3ri.gif'/></a>
